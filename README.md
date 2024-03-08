@@ -1,1 +1,1 @@
-# Floki Token
+# Flokiss Token
